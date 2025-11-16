@@ -34,7 +34,7 @@
 📫 **Let's Connect**:  
 - **Email**: omarbradai142@gmail.com
 - **LinkedIn**: [Omar Bradai](https://www.linkedin.com/in/omar-bradai-a058211a5/)
-- **Portfolio**: [portfolio.omarbradai.tn](https://portfolio.omarbradai.tn)
+- **Portfolio**: [omarbradai.tn](https://omarbradai.tn)
 
 ---
 
